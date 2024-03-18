@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @atlasvaliente on İnstagram 
+- 👀 I’m look like a god    
+- 🌱 I’m currently learning İT
+- Take me from this World
